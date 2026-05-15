@@ -1,4 +1,4 @@
-# 
+# WizTree for PC | WizTree for Windows elite Utility: duplicate-detection & folder-scanning offers the most advanced WizTree for PC | WizTree for Windows utility, with
 
 
 
